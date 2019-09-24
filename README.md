@@ -1,0 +1,1 @@
+# Informatika-SMG-10-b
